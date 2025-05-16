@@ -51,7 +51,7 @@ Click any tag below to jump to the invite link and details.
 
 ### 🔹 🔷RAGE
 **Tag:** `RAGE`  
-**Server:** *La cueva de Cosi*  
+**Server:** *RAGE - OG COD Gaming Server*  
 **Invite:** [Join RAGE Server](https://discord.gg/nk5DUSUsRW)
 
 ---
